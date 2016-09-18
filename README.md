@@ -11,3 +11,4 @@ Maybe it's time to make sacrifice for Mnemosyne
 * 2016-07-09 「真女神转生4F」神杀通关
 * 2016-08-03 「卡片召唤师·反叛」通关
 * 2016-09-10 「三体三部曲」
+* 2016-09-16 [「虚无的十字架」](https://www.amazon.cn/%E8%99%9A%E6%97%A0%E7%9A%84%E5%8D%81%E5%AD%97%E6%9E%B6-%E4%B8%9C%E9%87%8E%E5%9C%AD%E5%90%BE/dp/B00YOBMT6E/ref=sr_1_1?ie=UTF8&qid=1474163969&sr=8-1&keywords=%E8%99%9A%E6%97%A0%E7%9A%84%E5%8D%81%E5%AD%97%E6%9E%B6)
